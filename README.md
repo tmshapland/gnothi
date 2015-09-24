@@ -1,1 +1,1 @@
-# gnothi
+# gnothi seauton
