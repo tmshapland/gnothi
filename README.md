@@ -1,1 +1,1 @@
-# gnothi seauton
+# gnothi seauton meden agan
